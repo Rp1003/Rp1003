@@ -1,4 +1,4 @@
-## Hi 
+
 # Rushi Patel — Tech Lead
 
 > Available for Senior Roles
